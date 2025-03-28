@@ -1,6 +1,6 @@
 # IPTV Turkiye Yetkili Satış
 
- ## <a href="https://viyanaiptv.com/">IPTV SATIN ALMAK İÇİN TIKLA</a>
+ ## <a href="https://kaliteiptvtr5.com/">IPTV SATIN ALMAK İÇİN TIKLA</a>
  <a href="https://kaliteiptvtr5.com/">
      <img src="http://hizliresims.com/kaliteiptvlogo.png" alt="beinsports" style="max-width: 100%; border: 2px solid #ddd; margin-top: 15px;">
 
